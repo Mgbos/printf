@@ -1,1 +1,1 @@
-This is a team project by Chiemela Mgbeokwer and Ibrahim Abdullahi
+This is a team's project by Chiemela Mgbeokwere and Abdullahi Ibrahim
